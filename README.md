@@ -1,3 +1,3 @@
 # helloworld
 
-If I won the lottery today, I would probably go get myself some lunch. I would probably hire someone to manage my account, and give me an allowance each month. 
+For Thanksgiving, I am going to go to my sister's house in Iowa. I am so excited to see my neice and nephew while I am there!
